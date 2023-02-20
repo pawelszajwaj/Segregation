@@ -1,0 +1,3 @@
+# Segregation
+
+Na Colabie
