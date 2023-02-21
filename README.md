@@ -1,3 +1,3 @@
 # Segregation
 
-Na Colabie
+Na kolanie na Colabie
